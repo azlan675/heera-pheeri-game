@@ -1,1 +1,1 @@
-https://heera-pheeri.web.app/
+https://heera-pheeri-game.web.app/
